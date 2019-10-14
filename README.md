@@ -8,3 +8,7 @@ This is a list of the members of the Software Development course of the BIS
 Chelu Martin - [Linkedin Profile](https://www.linkedin.com/in/chelu-martin-romera/)
 
 ## Students
+
+Carmen Oballe Simón [Linkedin profile](https://www.linkedin.com/in/carmenoballesimon/)
+
+
