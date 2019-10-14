@@ -9,3 +9,5 @@ Chelu Martin - [Linkedin Profile](https://www.linkedin.com/in/chelu-martin-romer
 
 ## Students
 Juan Felipe Gonzalez - [Linkedin Profile](https://www.linkedin.com/in/juan-felipe-g-408b27b1/)
+Guillermo Molins - [Linkeding Profile](https://www.linkedin.com/in/guillermo-molins-méndez-b6946a180)
+
