@@ -9,4 +9,4 @@ Chelu Martin - [Linkedin Profile](https://www.linkedin.com/in/chelu-martin-romer
 
 ## Students
 
-Crack - Ignacio Gonzalez [Instagram](www.instagram.com/time_to_roll_out/)
+Crack - Ignacio Gonzalez [Instagram](www.instagram.com/time_to_roll_out)
