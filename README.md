@@ -8,3 +8,4 @@ This is a list of the members of the Software Development course of the BIS
 Chelu Martin - [Linkedin Profile](https://www.linkedin.com/in/chelu-martin-romera/)
 
 ## Students
+Julian Tannus - [Linkedin Profile (Still needs to be created)](https://www.linkedin.com)
